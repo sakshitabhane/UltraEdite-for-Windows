@@ -1,0 +1,1 @@
+# UltraEdite-for-Windows
